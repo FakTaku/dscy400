@@ -1,2 +1,2 @@
 # dscy400
-everything from when i was in dsce cy
+22.6.24 in dsce cy
